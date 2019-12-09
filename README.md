@@ -1,0 +1,1 @@
+# shou-suzuki.github.io
